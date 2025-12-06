@@ -26,7 +26,7 @@ Bienvenue sur mon profil GitHub ! Je suis **Aymane El yamani**, passionné par l
 
 ## 🌐 Me Contacter :
 - 📫 **Email** : [aymaneelyamani30@gmail.com](mailto:aymaneelyamani30@gmail.com)  
-- 💼 **LinkedIn** : [https://www.linkedin.com/in/aymane-el-yamani](https://www.linkedin.com/in/aymane-el-yamani-76090b265/)  
+- 💼 **LinkedIn** : www.linkedin.com/in/aymane-el-yamani-9821503a0  
 
 ---
 
